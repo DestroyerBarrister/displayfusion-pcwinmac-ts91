@@ -1,4 +1,4 @@
-# 
+# Principal DisplayFusion complementos para Mac OS | Inteligente DisplayFusion complementos para PC Windows. Con historial de versiones y soporte de scripting — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
